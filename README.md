@@ -1,0 +1,2 @@
+# barisalim
+Seni seviyorum naz
